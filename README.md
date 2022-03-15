@@ -1,2 +1,3 @@
 # Rama
-Mau diamond gratis:) 
+Mau diamond gratis
+Buruan login dan dapatkan 💎💎
